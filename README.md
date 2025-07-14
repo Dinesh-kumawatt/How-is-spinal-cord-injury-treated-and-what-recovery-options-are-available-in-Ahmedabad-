@@ -1,1 +1,5 @@
 # How-is-spinal-cord-injury-treated-and-what-recovery-options-are-available-in-Ahmedabad-
+
+Spinal cord injuries (SCI) can result from trauma, tumors, infections, or degenerative diseases—and they often lead to partial or complete loss of movement, sensation, or control over bodily functions. Immediate medical care is crucial. At Care and Cure Hospital in Ahmedabad, spinal cord injury treatment involves a multidisciplinary approach including emergency care, neurosurgery, medication to reduce inflammation, and long-term rehabilitation. The hospital offers advanced imaging to assess the extent of injury and performs surgeries to decompress or stabilize the spinal cord. Post-surgery, a dedicated team of physiotherapists and occupational therapists works on muscle strength, mobility, and improving quality of life. Pain management and psychological support are also critical components of recovery. The goal is to help patients regain as much independence as possible. Learn how the hospital provides comprehensive spinal cord injury care and real rehabilitation outcomes at:
+https://careandcurehospital.co.in/spinal-cord-injury-treatment-ahmedabad/
+
